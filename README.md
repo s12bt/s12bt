@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @s12bt
-https://twitter.com/s12bt
+https://s12bt.net/
 
